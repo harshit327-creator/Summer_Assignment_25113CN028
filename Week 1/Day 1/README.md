@@ -1,1 +1,1 @@
-Summer Assignment week 1 programs
+Summer Assignment Day 1 programs
